@@ -4,4 +4,4 @@ borders njiru and komarock
 
 kasarani constituency
 
-nairobi county
+white house court
